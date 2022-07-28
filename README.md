@@ -1,1 +1,1 @@
-# virus-eco-friendly-rach-cho-5-tr
+ko mở đc -> skill issue
